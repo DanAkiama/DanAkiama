@@ -39,7 +39,7 @@
 ## 📫 Contato
 
 - ✉️ Email: danielakiamaoficial@gmail.com
-- 🔗 LinkedIn: *em breve* (pretendo criar e melhorar com orientação)
+- 🔗 LinkedIn: www.linkedin.com/in/danielakiama
 
 ---
 
