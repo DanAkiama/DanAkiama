@@ -1,4 +1,4 @@
-# 👨‍💻 Daniel Akiama
+ Daniel Akiama
 
 🎓 Estudante de Sistemas de Informação – 3º semestre  
 📍 Cuiabá - MT | 
